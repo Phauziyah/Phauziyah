@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning more about Software Development and UI/UX Design.<br>I'm looking inI'm exploring innovative tech to fuel startup growth.<br>Ask me about any tech-related stuff,<br>How to reach me: Email- kennyanis36@gmail.com<br>Pronouns: She/Her<br>Fun fact: I love watching movies.
+I'm currently learning more about Software Development and UI/UX Design.<br>I'm exploring innovative tech to fuel startup growth.<br>Ask me about any tech-related stuff,<br>How to reach me: Email- kennyanis36@gmail.com<br>Pronouns: She/Her<br>Fun fact: I love watching movies.
 
 
 ## 🌐 Socials:
